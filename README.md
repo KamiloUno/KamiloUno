@@ -1,4 +1,4 @@
-# Hi there, I'm KamiloUno! 👋
+# Hi there, I'm Kamil! 👋
 
 ### 🎓 Computer Science Student @ Silesian University of Technology
 
